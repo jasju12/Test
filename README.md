@@ -2,4 +2,4 @@
 
 Hi all! 
 
-Jan hereni like games.
+Jan here, i like computer  games.
